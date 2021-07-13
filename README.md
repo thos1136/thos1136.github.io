@@ -1,4 +1,1 @@
-# 
-My WebSite
-
-eu gostaria de esfregar na cara do fupicat q disse q criar sites era para "espertos" na minha cara
+# Thos1136 WebSite & Wiki [min] PT BR [/min]
